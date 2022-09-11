@@ -1,8 +1,8 @@
 - 👋 Hi, I’m Mirai
-- 👀 I’m interested in cybersecurity and development 👨🏻‍💻
+- 👀 I’m interested in cybersecurity and development 👨🏻‍💻 (I also like hardware)
 - 🌱 I’m currently learning Lua(U)
-- 📫 How to reach me : Discord, Twitter, Telegram, Guilded.
-some cool ASCII art because why not :
+- 📫 How to reach me : Discord, Twitter, Telegram, Guilded, Revolt. (or my mailbox)
+- some cool ASCII art because why not :
 
 ```                      .                                .    
                       @88>                             @88>  
