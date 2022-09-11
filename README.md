@@ -2,7 +2,7 @@
 - 👀 I’m interested in cybersecurity and development 👨🏻‍💻
 - 🌱 I’m currently learning Lua(U)
 - 📫 How to reach me : Discord, Twitter, Telegram, Guilded.
-- le funni Ascii art chaos moment 
+some cool ASCII art because why not :
 
 ```                      .                                .    
                       @88>                             @88>  
