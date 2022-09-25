@@ -1,7 +1,7 @@
 - 👋 Hi, I’m Mirai
 - 👀 I’m interested in cybersecurity and development 👨🏻‍💻 (I also like hardware)
-- 🌱 I’m currently learning Lua(U)
-- 📫 How to reach me : Discord, Twitter, Telegram, Guilded, Revolt. (or my mailbox)
+- 🌱 I’m currently learning WebApp Vulns, it's my favorite thing as of now.
+- 📫 How to reach me : Discord, Twitter, Telegram, Guilded, Revolt, Signal, qTox (or my mailbox)
 - some cool ASCII art because why not :
 
 ```                      .                                .    
