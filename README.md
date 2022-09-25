@@ -1,4 +1,4 @@
-- 👋 Hi, I’m Mirai
+- 👋 Hi, I’m Mirai / MiRw3b
 - 👀 I’m interested in cybersecurity and development 👨🏻‍💻 (I also like hardware)
 - 🌱 I’m currently learning WebApp Vulns, it's my favorite thing as of now.
 - 📫 How to reach me : Discord, Twitter, Telegram, Guilded, Revolt, Signal, qTox (or my mailbox)
