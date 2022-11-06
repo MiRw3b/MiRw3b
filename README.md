@@ -1,8 +1,8 @@
-- 👋 Hi, I’m Mirai / MiRw3b
-- 👀 I’m interested in cybersecurity and development 👨🏻‍💻 (I also like hardware)
-- 🌱 I’m currently learning WebApp Vulns, it's my favorite thing as of now.
-- 📫 How to reach me : Discord, Twitter, Telegram, Guilded, Revolt, Signal, qTox (or my mailbox)
-- some cool ASCII art because why not :
+- Hi, I’m Mirai / MiRw3b
+- I like hardware-related stuffs and gaming ok
+- Overclocking go brrrrrrrrrrrrrrrrrrrrrrrrrrrrr
+- DnB & EdM breakcore is good ok (250bpm amen DnB moment 😳)
+- heres some cool ASCII art momento :
 
 ```                      .                                .    
                       @88>                             @88>  
