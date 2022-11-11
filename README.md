@@ -1,8 +1,9 @@
-- Hi, I’m Mirai / MiRw3b
-- I like hardware-related stuffs and gaming ok
-- Overclocking go brrrrrrrrrrrrrrrrrrrrrrrrrrrrr
-- DnB & EdM breakcore is good ok (250bpm amen DnB moment 😳)
-- heres some cool ASCII art momento :
+- Hi, I’m Mirai / MiRw3b 👋
+- I like hardware-related stuffs and gaming ok 🎮
+- Overclocking go brrrrrrrrrrrrrrrrrrrrrrrrrrrrr 🔥🔥
+- DnB & EdM breakcore is good ok (250bpm amen DnB moment 😳) 🎵
+- Anonymity is one of the best rights in live 🕵
+- heres some cool ASCII art because i like it :
 
 ```                      .                                .    
                       @88>                             @88>  
