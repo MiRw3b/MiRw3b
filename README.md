@@ -2,6 +2,7 @@
 - I like hardware-related stuffs and gaming ok 🎮
 - Overclocking go brrrrrrrrrrrrrrrrrrrrrrrrrrrrr 🔥🔥
 - DnB & EdM breakcore is good ok (speedcore 600+bpm is very cool too 😳) ((average sewerslvt & acidgvrl fan)) 🎵
+- Listens to OG / Rare Phonk (Purple Posse, DJ Smokey, Holymob...)
 - Anonymity is one of the best rights in life 🕵
 - heres some cool ASCII art because i like it :
 
