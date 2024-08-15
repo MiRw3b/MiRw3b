@@ -1,10 +1,11 @@
 - Hi, I’m Mirai / MiRw3b 👋
 - I like hardware-related stuffs and gaming ok 🎮
 - Overclocking go brrrrrrrrrrrrrrrrrrrrrrrrrrrrr 🔥🔥
-- DnB & breakcore and basically EDM is good ok (speedcore 600+bpm is very cool too 😳) ((average sewerslvt & acidgvrl fan)) 🎵
-- NORWEGIAN BLACK METAL IS GOOOOOOOOOOOOOOOOOOOOOD IT'S MAYHEEEEEEEEEEEEEEM BURZUUUUUUUUUUM and DARKTHROOOOOOOONE
-- and kellersynth & tanzelcore are cool tooooo ^
-- Listens to OG / Rare Phonk (Purple Posse, DJ Smokey, Holymob...)
+- DnB & breakcore & glitchbreak ((average sewerslvt/goresh1t/dj kuroneko/rory in early 20s/hkmori fan)) 🎵
+- and basically EDM is good ok (speedcore 600+bpm is very cool too 😳) (hail diabarha fr) ☣️
+- BLACK METAL IS GOOOOOOOOOOOOOOOOOOOOOD ITS PURE FORKING MAYHEM!!!! 🎸
+- and kellersynth & tanzelcore are cool tooooo ^ 🧙‍♂️
+- OG / Rare Phonk (Purple Posse, DJ Smokey, Holymob, kloudbug ...) enjoyer 🚬
 - Anonymity is one of the best rights in life 🕵
 - heres some cool ASCII art because i like it and its cool :
 
