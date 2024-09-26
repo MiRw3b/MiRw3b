@@ -1,15 +1,18 @@
 - Hi, I’m Mirai / MiRw3b 👋
-- I like hardware-related stuffs and gaming ok 🎮
+- I like hardware-related stuffs and gaming (ok) 🎮
 - Overclocking go brrrrrrrrrrrrrrrrrrrrrrrrrrrrr 🔥🔥
+- ^ my brain is overclocked with thy silly adhd <-- and silly OCD but haha omw to not cross the line 'cause im borderline. PTSD but the thing goes skrr!? 🔥🧠🔥
 - DnB & breakcore & glitchbreak ((average sewerslvt/goresh1t/dj kuroneko/rory in early 20s/hkmori fan)) 🎵
 - and basically EDM is good ok (speedcore 600+bpm is very cool too 😳) (hail diabarha fr) ☣️
-- BLACK METAL IS GOOOOOOOOOOOOOOOOOOOOOD ITS PURE FORKING MAYHEM!!!! 🎸
-- and kellersynth & tanzelcore are cool tooooo ^ 🧙‍♂️
-- OG / Rare Phonk (Purple Posse, DJ Smokey, Holymob, kloudbug ...) enjoyer 🚬
-- Anonymity is one of the best rights in life 🕵
+- BLACK METAL / DEATH METAL / WAR METAL ENJOYER!!!! (omw to listen to behexen 500 times in a row and destroy my eardrums) 🎸
+- dungeon synth, keller synth & tanzelcore are cool too frfr 🧙‍♂️
+- also a DSBM enjoyer.. 😔
+- OG / Rare Phonk (Purple Posse, DJ Smokey, Holymob, kloudbug, ...) enjoyer 🚬
+- Anonymity is a right. 🕵
 - heres some cool ASCII art because i like it and its cool :
 
-```                      .                                .    
+```
+                      .                                .    
                       @88>                             @88>  
    ..    .     :      %8P      .u    .                 %8P   
  .888: x888  x888.     .     .d88B :@8c        u        .    
@@ -35,16 +38,5 @@
 ⠀⢸⠀⠀⠀⠢⣀⠀⠈⠉⠉⠉⠉⣉⣀⠠⣐⠦⠑⣊⡥⠞⠋⠀⠀⠀⠀⠀⠀⠀
 ⠀⢸⡀⠀⠁⠂⠀⠀⠀⠀⠀⠀⠒⠈⠁⣀⡤⠞⠋⠁⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
 ⠀⠀⠙⠶⢤⣤⣤⣤⣤⡤⠴⠖⠚⠛⠉⠁⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
-                                                         
-  .x~~"*Weu.         oe      .x~~"*Weu.     .x~~"*Weu.   
- d8Nu.  9888c      .@88     d8Nu.  9888c   d8Nu.  9888c  
- 88888  98888  ==*88888     88888  98888   88888  98888  
- "***"  9888%     88888     "***"  9888%   "***"  9888%  
-      ..@8*"      88888          ..@8*"         ..@8*"   
-   ````"8Weu      88888       ````"8Weu      ````"8Weu   
-  ..    ?8888L    88888      ..    ?8888L   ..    ?8888L 
-:@88N   '8888N    88888    :@88N   '8888N :@88N   '8888N 
-*8888~  '8888F    88888    *8888~  '8888F *8888~  '8888F 
-'*8"`   9888%     88888    '*8"`   9888%  '*8"`   9888%  
-  `~===*%"`    '**%%%%%%**   `~===*%"`      `~===*%"`    
-                                               ```
+
+```
