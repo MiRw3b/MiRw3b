@@ -1,10 +1,10 @@
-- Hi, I’m Mirai / MiRw3b 👋
+- Hi, I’m Mirai / MiRw3b 👋👋👋👋👋👋👋👋👋👋👋👋👋👋👋👋👋👋👋👋👋👋👋👋👋👋👋👋👋👋👋👋👋👋👋👋👋👋👋👋👋
 - I like hardware-related stuffs and gaming (ok) 🎮
 - Overclocking go brrrrrrrrrrrrrrrrrrrrrrrrrrrrr 🔥🔥
-- ^ my brain is overclocked with thy silly adhd <-- and silly OCD but haha omw to not cross the line 'cause im borderline. PTSD but the thing goes skrr!? 🔥🧠🔥
+- ^ my brain is overclocked with thy silly adhd <-- and silly OCD 🔥🧠🔥 <-- my brain is on fire every day n nite!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!! lmao
 - DnB & breakcore & glitchbreak ((average sewerslvt/goresh1t/dj kuroneko/rory in early 20s/hkmori fan)) 🎵
 - and basically EDM is good ok (speedcore 600+bpm is very cool too 😳) (hail diabarha fr) ☣️
-- BLACK METAL / DEATH METAL / WAR METAL ENJOYER!!!! (omw to listen to behexen 500 times in a row and destroy my eardrums) 🎸
+- BLACK METAL / DEATH METAL / WAR METAL ENJOYER!!!! (omw to listen to behexen and emit 500 times in a row and destroy my eardrums) 🎸
 - dungeon synth, keller synth & tanzelcore are cool too frfr 🧙‍♂️
 - also a DSBM enjoyer.. 😔
 - OG / Rare Phonk (Purple Posse, DJ Smokey, Holymob, kloudbug, ...) enjoyer 🚬
