@@ -1,16 +1,3 @@
-- Hi, I’m Mirai / MiRw3b 👋👋👋👋👋👋👋👋👋👋👋👋👋👋👋👋👋👋👋👋👋👋👋👋👋👋👋👋👋👋👋👋
-- I like hardware-related stuffs and gaming (ok) 🎮
-- Overclocking go brrrrrrrrrrrrrrrrrrrrrrrrrrrrr 🔥🔥
-- ^ my brain is overclocked with thy silly adhd <-- and silly OCD 🔥🧠🔥 <-- my brain is on fire every day n nite!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!! lmao
-- DnB & breakcore & glitchbreak ((average sewerslvt/goresh1t/dj kuroneko/rory in early 20s/hkmori fan)) 🎵
-- and basically EDM is good ok (speedcore/splittercore/extratone 600+bpm is very cool too 😳) (hail diabarha/loffciamcore fr) (SKRD4EVER!!!!!!) ☣️
-- BLACK METAL / DEATH METAL / WAR METAL ENJOYER!!!! (omw to listen to behexen and emit 500 times in a row and destroy my eardrums) 🎸
-- dungeon synth, keller synth & tanzelcore are cool too frfr 🧙‍♂️
-- also a DSBM enjoyer.. 😔
-- OG / Rare Phonk (Purple Posse, DJ Smokey, Holymob, kloudbug) enjoyer 🚬
-- Anonymity is a right. 🕵
-- heres some cool ASCII art because i like it and its cool :
-
 ```
                       .                                .    
                       @88>                             @88>  
@@ -25,18 +12,17 @@
    `~    "    `"`     R888"     "Y"      "888*""888"   R888" 
                        ""                 ^Y"   ^Y'     ""   
                                                              
-⠀⠀⠀⠀⠀⣀⣠⠤⠶⠶⣖⡛⠛⠿⠿⠯⠭⠍⠉⣉⠛⠚⠛⠲⣄⠀⠀⠀⠀⠀
-⠀⠀⢀⡴⠋⠁⠀⡉⠁⢐⣒⠒⠈⠁⠀⠀⠀⠈⠁⢂⢅⡂⠀⠀⠘⣧⠀⠀⠀⠀
-⠀⠀⣼⠀⠀⠀⠁⠀⠀⠀⠂⠀⠀⠀⠀⢀⣀⣤⣤⣄⡈⠈⠀⠀⠀⠘⣇⠀⠀⠀
-⢠⡾⠡⠄⠀⠀⠾⠿⠿⣷⣦⣤⠀⠀⣾⣋⡤⠿⠿⠿⠿⠆⠠⢀⣀⡒⠼⢷⣄⠀
-⣿⠊⠊⠶⠶⢦⣄⡄⠀⢀⣿⠀⠀⠀⠈⠁⠀⠀⠙⠳⠦⠶⠞⢋⣍⠉⢳⡄⠈⣧
-⢹⣆⡂⢀⣿⠀⠀⡀⢴⣟⠁⠀⢀⣠⣘⢳⡖⠀⠀⣀⣠⡴⠞⠋⣽⠷⢠⠇⠀⣼
-⠀⢻⡀⢸⣿⣷⢦⣄⣀⣈⣳⣆⣀⣀⣤⣭⣴⠚⠛⠉⣹⣧⡴⣾⠋⠀⠀⣘⡼⠃
-⠀⢸⡇⢸⣷⣿⣤⣏⣉⣙⣏⣉⣹⣁⣀⣠⣼⣶⡾⠟⢻⣇⡼⠁⠀⠀⣰⠋⠀⠀
-⠀⢸⡇⠸⣿⡿⣿⢿⡿⢿⣿⠿⠿⣿⠛⠉⠉⢧⠀⣠⡴⠋⠀⠀⠀⣠⠇⠀⠀⠀
-⠀⢸⠀⠀⠹⢯⣽⣆⣷⣀⣻⣀⣀⣿⣄⣤⣴⠾⢛⡉⢄⡢⢔⣠⠞⠁⠀⠀⠀⠀
-⠀⢸⠀⠀⠀⠢⣀⠀⠈⠉⠉⠉⠉⣉⣀⠠⣐⠦⠑⣊⡥⠞⠋⠀⠀⠀⠀⠀⠀⠀
-⠀⢸⡀⠀⠁⠂⠀⠀⠀⠀⠀⠀⠒⠈⠁⣀⡤⠞⠋⠁⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
-⠀⠀⠙⠶⢤⣤⣤⣤⣤⡤⠴⠖⠚⠛⠉⠁⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
-
 ```
+I like hardware-related stuffs, i also love GNU/Linux, especially Artix Linux. 🐧
+
+I have ADHD and OCD. 🧩
+
+I sometimes repair/maintain computers as part-time and i plan on most likely making it my job. 🔧
+
+I speak French, and (obviously) English 🇫🇷 🇺🇸
+
+I like alot of music genres like DnB/Breakcore, Speedcore/Extratone, Black/Death/War Metal, Grindcore, Dungeon/Kellersynth & Tanzelcore, OG / Rare Phonk (and more genres, i'm just skipping!) 🎵
+
+Privacy and Anonymity are rights. 🕵
+
+Oh, also, i have my "own website" (hosted on neocities). https://mirw3b.neocities.org/ 🌐
