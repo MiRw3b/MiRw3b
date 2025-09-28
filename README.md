@@ -17,7 +17,7 @@ I like hardware-related stuffs, i also love GNU/Linux, especially Artix Linux. �
 
 I have ADHD and OCD. 🧩
 
-I sometimes repair/maintain computers as part-time and i plan on most likely making it my job. 🔧
+I'm an IT Support Technician 🔧
 
 I speak French, and (obviously) English 🇫🇷 🇺🇸
 
