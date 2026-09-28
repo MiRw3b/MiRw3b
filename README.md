@@ -13,7 +13,7 @@
                        ""                 ^Y"   ^Y'     ""   
                                                              
 ```
-I like hardware-related stuffs, i also love GNU/Linux, especially Artix Linux. 🐧
+I like hardware-related stuffs, i also love GNU/Linux and UNIX & BSD, especially Artix Linux, Alpine Linux and freeBSD.🐧
 
 I have ADHD and OCD. 🧩
 
