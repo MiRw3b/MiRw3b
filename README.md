@@ -15,13 +15,9 @@
 ```
 I like hardware-related stuffs, i also love GNU/Linux and UNIX & BSD, especially Artix Linux, Alpine Linux and freeBSD.🐧
 
-I have ADHD and OCD. 🧩
-
 I'm an IT Support Technician 🔧
 
 I speak French, and (obviously) English 🇫🇷 🇺🇸
-
-I like alot of music genres like DnB/Breakcore, Speedcore/Extratone, Black/Death/War Metal, Grindcore, Dungeon/Kellersynth & Tanzelcore, OG / Rare Phonk (and more genres, i'm just skipping!) 🎵
 
 Privacy and Anonymity are rights. 🕵
 
